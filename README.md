@@ -1,0 +1,1 @@
+# ekinsu_do-an_YODA_OTONOM_YAZILIM
